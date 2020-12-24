@@ -7,8 +7,7 @@ Ingredients
 
 - 3 oz. semisweet chocolate
 - 2 oz. unsweetened chocolate
-- 1 TBS. dry instant expresso or coffee
-- 1 1/3 cups boiling water
+- 1 TBS. dry instant expresso or coffee + 1 1/3 cups boiling water (or 1 1/3 cups strong freshly brewed coffee)
 - 1 3/4 cups sifted unbleached flour
 - 1/4 cup unsweetened cocoa powder (preferably Dutch-process)
 - 1 1/2 tsp. baking powder
@@ -26,7 +25,7 @@ Adjust your oven rack 1/3 from the bottom and preheat to 325 degrees.
 
 Butter or spray two 5-cup loaf pans and dust them with chocolate bread crumbs. Just mix enough cocoa powder into regular bread crumbs to give them a dark color.
 
-In a small saucepan or double boiler, melt both chocolates along with the expresso powder and the boiling water. Whisk it until the mixture is smooth. Transfer the mixture to a container that has a spout and can be poured from easily. Set aside to cool to lukewarm temperature.
+In a small saucepan or double boiler, melt both chocolates along with the expresso powder and the boiling water (or coffee). Whisk it until the mixture is smooth. Transfer the mixture to a container that has a spout and can be poured from easily. Set aside to cool to lukewarm temperature.
 
 Sift the flour, cocoa, baking powder, salt and pepper and set aside.
 
