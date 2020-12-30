@@ -11,7 +11,7 @@ Ingredients
 - 3⁄4 cup sugar
 - 2 teaspoons vanilla extract
 - 1 egg
-- Zest of 1/2 lemon
+- Zest of 1 lemon
 - 1⁄2 cup multi-colored homemade or store-bought sprinkles
 - 1 egg white, lightly beaten
 
