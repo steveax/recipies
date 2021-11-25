@@ -14,7 +14,7 @@ Baked Pumpkin Kibbeh
 - 1½ tablespoons Tanoreen Kibbie Spice Mix
 or
 - 1 tablespoon ground allspice
-- 1½ teaspoons freshly ground black pepper
+- 1 teaspoon freshly ground black pepper
 - ½ teaspoon ground cumin
 - ¼ teaspoon ground cardamom
 - ¼ teaspoon freshly grated nutmeg
@@ -24,11 +24,11 @@ or
 ## Stuffing
 
 - 2 tablespoons olive oil
-- 5 cups packed baby spinach leaves
+- 5 cups packed baby spinach leaves (or other green, chard works well, about 1 1/2 - 2 large bunches)
 - 1 cup diced onion
 - ½ cup diced shallots (or additional onion)
 - 1 cup cooked chickpeas, fresh or canned
-- 1 cup coarsely chopped walnuts
+- 1 cup coarsely chopped walnuts (pine nuts and hazelnuts also work well)
 - ½ cup packed chopped fresh cilantro
 - 2 tablespoons pomegranate molasses
 - Juice of 1 lemon
