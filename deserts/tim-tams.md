@@ -1,5 +1,7 @@
 Tim Tams
 ========
+Source: The Sugar Hit!, Sarah Coates
+
 
 Ingredients
 -----------
@@ -30,4 +32,8 @@ Instructions
 Take the dough out of the freezer and slice it into 28 small (1.25 x 2.5 inch) rectangles. Seperate the rectangles and spread them out on the lined baking trays. Bake for 10 minutes, then transfer to a wire rack to cool completely.
 1. Make the Filling: Cream the butter until soft, sift in the remaining ingredients and beat until well combined. Spread a heaped teaspoon of filling onto half of the cookies (on the bottom side). Top with the remaining cookies, then place in the refrigerator to chill while you prepare the coating.
 1. Prepare the Coating: Place the chocolate and coconut oil in a heat-proof bowl and melt together in the microwave on High (100%) in 30-second bursts, stirring well after each burst. Once the chocolate is mostly melted, remove and stir gently until smooth.
-1. Take a chilled cookie and carefully coat it in the chocolate – this is easiest if you use your hands – then put it on a lined baking tray. Chill in the refrigerator, then try and stop yourself from eating them all immediately!
+1. Take a chilled cookie and carefully coat it in the chocolate – this is easiest if you use your hands – then put it on a lined baking tray. Chill in the refrigerator, then try and stop yourself from eating them all immediately
+
+## Notes
+
+Unable to find ovaltine, I subbed dray malt extract which may have effected the filling consistency, but I had to add more butter to get the consistency something spreadable.
