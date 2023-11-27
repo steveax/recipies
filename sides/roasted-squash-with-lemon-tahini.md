@@ -5,7 +5,7 @@ Roasted Winter Squash and Red Onion With Tahini and Za’atar
 
 Servings: 8
 
-- 1 medium butternut squash (1 pound 8 ounces) peeled and cut into 1-by-2 1/2-inch chunks
+- 1 medium winter squash (1 pound 8 ounces, Kobocha and Red Kuri work well) peeled and cut into 1-by-2 1/2-inch chunks
 - 1 large red onion (8 ounces), cut into eighths
 - 3 tablespoons plus 1 teaspoon extra-virgin olive oil, divided
 - 1 3/4 teaspoons kosher salt, divided, plus more to taste
